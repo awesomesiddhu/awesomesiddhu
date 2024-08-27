@@ -1,6 +1,6 @@
 ## Hi there, I am Siddharth. 👋
 Contact me at
-[LinkedIn](https://www.linkedin.com/in/siddharth-d-srinivas-855917247/)
+[LinkedIn](https://www.linkedin.com/in/siddharth-d-srinivas-855917247/) or 
 [Email](mailto:siddharth.srinivas03@gmail.com)
 ## ⚡ Stats
 <div align="center">
